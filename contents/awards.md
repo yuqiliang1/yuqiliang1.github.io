@@ -1,9 +1,5 @@
-- First-prize Academic Scholarship, 2023.
+- Excellent Student Scholarship, 2024.
 
-- Freshman Academic Scholarship, 2022.
+- Best Cadet, Hong Kong Leadership Training Camp, 2024.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship, 2021.
-
-- First-prize Academic Scholarship, 2019.
+- First Prize, Electronic Design Competition, School of Automation Engineering, 2023.
