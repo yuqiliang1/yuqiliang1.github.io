@@ -1,6 +1,6 @@
 
 
-[![yuqiliang1](https://github.com/yuqiliang1-github-blue?logo=github)](https://github.com/senli1073)
+[![yuqiliang1](https://github.com/yuqiliang1-github-blue?logo=github)](https://github.com/yuqiliang1)
 
 He is currently pursuing a Bachelor's Degree in Automation, at School of Automation Engineering, University Of Electronic Science And Technology Of China
 
